@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me 
 - 😄 Pronouns: she / her
-- ⚡ Fun fact: I am a prouct leader, dog mom and certified CBD advisor.
+- ⚡ Fun fact: I am a prouct leader, dog mom, wellness coach and certified CBD advisor.
 
 <!---
 cathie13/cathie13 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
