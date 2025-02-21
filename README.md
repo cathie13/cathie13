@@ -2,7 +2,7 @@
 - 👀 I’m interested in learning new things
 - 🌱 I’m currently learning how to use GitHub
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me cathie.tomassone@washpost.com
+- 📫 How to reach me 
 - 😄 Pronouns: she / her
 - ⚡ Fun fact: I am a prouct leader, dog mom and certified CBD advisor.
 
